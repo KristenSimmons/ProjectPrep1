@@ -18,7 +18,7 @@ I will probably need to take breaks and reach out to TA's for help as needed.
 #### 2) What will your team do if one person is taking over the project and not letting the other members contribute?
 No worries on this one! But for future team projects, I would hope to establish solid communication beforehand on how we will share contributions. 
 #### 3) How will you approach each other and the challenges of the project knowing that it is impossible for all members to be at the exact same place in understanding and skill level?
-This can be tough when working in a group. I think it is important to set  out expectations from the begining and have everyone commit to a certain timeline and how to handle communication if something pops up and we need to pivot. 
+This can be tough when working in a group. I think it is important to set  out expectations from the beginning and have everyone commit to a certain timeline and how to handle communication if something pops up and we need to pivot. 
 #### 4) How will you raise concerns to members who are not adequately contributing?
 I have run into this issue in the past on team projects! I am not afraid to speak up and let someone know they are not meeting expectations. 
 #### 5) How and when will you escalate the conflict if your resolution attempts are unsuccessful?
@@ -38,7 +38,7 @@ Not needed as a solo project.
 #### 6) What is your strategy for ensuring everyone’s voice is heard?
 Not a concern as a solo project. But as a group, this is extremely important. I would make sure everyone has a fair contribution to the project and the option to speak up with new ideas or concerns throughout the project. 
 #### 7) How will you ensure that you are creating a safe environment where everyone feels comfortable speaking up?
-I like the idea of using the timeout card and breaks when conflicts arise. I also like the idea of setting up the ground rules of communication and expectations from the begining. 
+I like the idea of using the timeout card and breaks when conflicts arise. I also like the idea of setting up the ground rules of communication and expectations from the beginning. 
 
 ## Work Plan 
 #### 1) How you will identify tasks, assign tasks, know when they are complete, and manage work in general?
